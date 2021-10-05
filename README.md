@@ -8,7 +8,7 @@
 - 🤔 I’m looking for help with ... -->
 - 💬 Ask me about HTML, JS, CSS, C/C++.
 
-- 📫 How to reach me: [Mail ID](prachinarad555@gmail.com) ,[Linkedin ID](www.linkedin.com/in/prachi-narad-64881220a)
+- 📫 How to reach me: [Mail ID](prachinarad555@gmail.com) ,[www.linkedin.com/in/prachi-narad-64881220a](www.linkedin.com/in/prachi-narad-64881220a)
 
 - 😄 Pronouns:She/Her
 
