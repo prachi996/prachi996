@@ -11,6 +11,8 @@
 
 - 📫 How to reach me **prachinarad555@gmail.com**
 
+- 😄 Pronouns: She/Her
+
 - ⚡ Fun fact **I am Happy😅.**
 
 <h3 align="left">Connect with me:</h3>
